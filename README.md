@@ -8,7 +8,6 @@ developer, student, and someone who just enjoys making things (even if they're r
 
 - got into computers & code at age 9 (early start)
 - i make things for fun, sometimes they even work
-- omnisexual
 - love drawing, gaming, and i'm pretty great at geometry dash
 - fascinated by physics, maths, and biology
 
